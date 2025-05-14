@@ -1,1 +1,0 @@
-# Business-Management-and-Information-Technology
